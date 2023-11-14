@@ -1,1 +1,1 @@
-This is a project I worked on because I was bord so here it is
+This is a project I worked on because I was board so here it is
